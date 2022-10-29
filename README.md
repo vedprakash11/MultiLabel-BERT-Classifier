@@ -6,4 +6,4 @@ The goal of this competition is to assess the language proficiency of 8th-12th g
 
 Your work will help ELLs receive more accurate feedback on their language development and expedite the grading cycle for teachers. These outcomes could enable ELLs to receive more appropriate learning tasks that will help them improve their English language proficiency.
 
-<p align="left"> <img src="https://www.engconvo.com/wp-content/uploads/2019/06/English-language-learning.jpeg" alt="blurred-machine" /> </p>
+<p align="left"> <img src="https://thekootneeti.in/wp-content/uploads/2021/03/The-English-Language-blog-english-culture.com_-scaled.jpg" alt="blurred-machine" /> </p>
